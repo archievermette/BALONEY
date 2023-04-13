@@ -1,5 +1,4 @@
 # BALONEY
-L'histoire du Baloney
 
-### Yannic je suis
-Je me demandais : pourquoi on appelle ça les Baloneys?
+### Il était une fois l'histoire d'une ligue balle amicale 
+Bien hâte d'en connaître la suite.
